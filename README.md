@@ -78,6 +78,45 @@
 
 
 # DAY 5
+# Induction-day-5
+## Date - 5/8/25
+## Day - Tuesday
+# DAY 5
+## A usual everyday 
+## At 9.30 am we all have a lecture of subject - english
+## After that , At 10.30 am we have a lecture of MATHS..
+## then we have another lecture of BEEE...
+## Then DR. ARVIND DHINGRA SIR enlighten us with the brief information .
+### The day began with an insightful expert lecture by # Dr.PRIYA DARSHNI MA'AM ON UNIVERSAL HUMAN VALUES IN THE AUDITORIUM , 
+## Guiding us all towards a more conscious and value based life .
+### Mam is really giving us very brief knowledge which will be helping us in our future aspects.
+# Nextly GAUTAM SIR , ONE OF THE ESTEEMED SENIORS SHARED HIS JOURNEY IN MOTORSPORTS,inspiring young minds with passion and grit.
+## The Causmic Club team also showcased their vibrant initiatives , giving freshers a glimpse into creativity , leadership and innovation.
+### After that we all dispersed out of the auditorium...
+
+
+
+# DAY 6
+# Induction-day-5
+## Date - 5/8/25
+## Day - Tuesday
+# DAY 5
+## A usual everyday 
+## At 9.30 am we all have a lecture of subject - english
+## After that , At 10.30 am we have a lecture of MATHS..
+## then we have another lecture of BEEE...
+## Then DR. ARVIND DHINGRA SIR enlighten us with the brief information .
+### The day began with an insightful expert lecture by # Dr.PRIYA DARSHNI MA'AM ON UNIVERSAL HUMAN VALUES IN THE AUDITORIUM , 
+## Guiding us all towards a more conscious and value based life .
+### Mam is really giving us very brief knowledge which will be helping us in our future aspects.
+# Nextly GAUTAM SIR , ONE OF THE ESTEEMED SENIORS SHARED HIS JOURNEY IN MOTORSPORTS,inspiring young minds with passion and grit.
+## The Causmic Club team also showcased their vibrant initiatives , giving freshers a glimpse into creativity , leadership and innovation.
+### After that we all dispersed out of the auditorium...
+
+
+
+# DAY 7
+
 
 
 
