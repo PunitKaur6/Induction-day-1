@@ -126,13 +126,3 @@
 ### We have a class of BEEE ( BACHELORS OF ELECTRICALS AND ELECTRONICS ENGINEERING 
 ### Moving forward , we have a english lecture
 ## AND WITH THAT WE ALL DISPERSE
-
-
-
-# DAY 8
-
-
-
-
-
-
