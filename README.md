@@ -116,7 +116,20 @@
 
 
 # DAY 7
+# INDUCTION-DAY-7
+## DAY-THURSDAY
+## DATE - 7/8/25
+## The day begins with a lecture by DR.AMIT KHANNA(INCHARGE DMC).
+## Secondly , we attended Dr. Parminder Singh ( DEAN STUDENT WELFARE ).
+## Nextly , there was again a lecture by Dr. RANDHIR SINGH 
+### After a short break , at 1.30 pm 
+### We have a class of BEEE ( BACHELORS OF ELECTRICALS AND ELECTRONICS ENGINEERING 
+### Moving forward , we have a english lecture
+## AND WITH THAT WE ALL DISPERSE
 
+
+
+# DAY 8
 
 
 
