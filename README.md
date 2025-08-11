@@ -1,4 +1,5 @@
-# Induction day-1 
+# INDUCTION PROGRAMME
+# DAY 1
 ## Student Induction Program
 ## Day - Thursday
 ## Date - 31/7/25
